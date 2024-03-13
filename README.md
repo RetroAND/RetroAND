@@ -1,4 +1,4 @@
-Greetings, my alias is retroAND.
+Greetings, my alias is RetroAND.
 
 I'm interested in old computers as well digital electronics per se.
 I'm currently learning analog electronics at the cost of a few burns.
